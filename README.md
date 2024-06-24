@@ -1,4 +1,4 @@
-Claro! Aqui está o README corrigido com as informações atualizadas:
+
 
 ---
 
